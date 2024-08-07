@@ -1,3 +1,3 @@
-# MCA Graduvate
-# Quick Leriner
-# open to work, Entry Level
+ MCA Graduvate
+ Quick Leriner
+ open to work, Entry Level
